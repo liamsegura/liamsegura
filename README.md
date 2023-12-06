@@ -6,4 +6,3 @@
 
 🚀 [Site](https://liamsegura.com) <br>
 💼 [LinkedIn](https://www.linkedin.com/in/liamsegura) <br>
-🐦 [Twitter](https://twitter.com/liamdiegosegura) <br>
